@@ -1,0 +1,1 @@
+Spooky countdown to halloween in your store footer!
